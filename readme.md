@@ -4,4 +4,4 @@
 - Just doing some dumb shit as always
 - Studying IT at Hanze University of Applied Sciences
 
-Webstie ---> https://www.mdproductions.nl/
+Webstie ---> https://www.mgdproductions.nl/
