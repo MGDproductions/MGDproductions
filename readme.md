@@ -1,4 +1,4 @@
-- Cat lover 
+- Cat person 
 - AKA ProgrammeerMeneer
 - Web, app and webapp developer
 - Just doing some dumb shit as always
